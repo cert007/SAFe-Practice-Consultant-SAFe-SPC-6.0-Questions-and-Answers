@@ -1,0 +1,1 @@
+# SAFe-Practice-Consultant-SAFe-SPC-6.0-Questions-and-Answers
